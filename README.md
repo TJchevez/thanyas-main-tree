@@ -5,3 +5,4 @@ Even though I haven't really gotten started yet, I know this will be so fun to b
 I just been on a job hunt and getting sharper practicing my coding skills. 
 Which is taking up so much of my time but the wait will be worth it.
 I'm also traveling for the next 3 weeks.
+I will be coming back to the U.S.A but July 20. 
